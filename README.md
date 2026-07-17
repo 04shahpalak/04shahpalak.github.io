@@ -17,8 +17,6 @@ https://palakshahproductportfolio.framer.website/
 
 ✨ AI Interview – Tara
 
-✨ LaundryHeap Hero Redesign
-
 ## Connect with me
 
 LinkedIn: https://www.linkedin.com/in/palak-shah-47a640100/
